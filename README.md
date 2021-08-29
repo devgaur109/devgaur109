@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @devgaur109
+- 👋 Hi, I’m Dev Gaur
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
